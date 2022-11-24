@@ -1,4 +1,4 @@
-CRIAMOS E HOSPEDAGEMOS SITES E LOJAS VIRTUAIS
+CRIAMOS E HOSPEDAMOS SITES E LOJAS VIRTUAIS
 
 Oferecemos modelos de sites, de lojas virtuais e outros sistemas.
 
